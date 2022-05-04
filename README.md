@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OleksDruggsi
+- 👀 I’m interested in ...plutonium: Call of Duty World at War,Black Ops 2 - Multiplayer,Zombies MODING 
+- 🌱 I’m currently learning ...yes
+- 💞️ I’m looking to collaborate on ...yes
+- 📫 How to reach me ...instogram Oleksander_Drugg
